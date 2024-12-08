@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new technologies ..
 - 🌱 I’m currently learning IT Support for Office Management 
 - 💞️ I’m looking to collaborate on a professional network 
-- 📫 How to reach me? email,fb
+- 📫 How to reach me? email,LinkedIn 
 - 😄 Pronouns: she
 - ⚡ Fun fact: I am scare of cats
 
